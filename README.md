@@ -2,16 +2,16 @@
 
 An analytics and data science professional with significant years of experience conducting advanced analytics and data science projects in various industries like banking, shipping, telecommunications, quantitative finance, consulting and academic research.
 
-❏ Master of Data Science
+❏ Master of Data Science 📔🌟
 
-  Federation University of Australia 🚀🌟
+  Federation University of Australia 
   
 
 ____________
 
-❏ Master of Science in Statistics 
+❏ Master of Science in Statistics 📔🌟
 
-❏ Bachelor of Science in Statistics
+❏ Bachelor of Science in Statistics 📔🌟
   
   University of the Philippines
   
