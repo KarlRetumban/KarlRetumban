@@ -1,6 +1,6 @@
 ### Hi there, I'm Karl. 👋
 
-An analytics and data science professional with significant years of experience conducting advanced analytics and data science projects in various industries like banking, shipping, telecommunications, quantitative finance, consulting and academic research.
+An analytics and data science professional with significant years of experience conducting advanced analytics & data science projects in various industries and domains like in HR & workforce, banking, shipping, telecommunications, quantitative finance, consulting and academic research.
 
 ❏ Master of Data Science 📔🌟
 
